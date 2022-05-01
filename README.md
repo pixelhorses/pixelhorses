@@ -26,5 +26,5 @@ Our Socials Account
 
 https://www.pixelhorses.club/
 https://t.me/pixelhorsesclub
-https://twitter.com/pixelhorsesclub
+https://twitter.com/pixelhorsesbsc
 https://www.instagram.com/pixelhorsesclub
